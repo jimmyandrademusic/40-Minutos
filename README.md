@@ -17,6 +17,8 @@ O novo trabalho é a marca do amadurecimento artístico e superação do cantor.
 Henrique Andrade, ou Jimmy Andrade, nasceu na cidade de Minas Novas, no Vale do Jequitinhonha mineiro. Em 2005, se descobriu como cantor. No ano seguinte, ganhou seu primeiro violão e começou a gravar covers. Em 2008, disponibilizou o trabalho "Eletroacústico" na internet. De acordo com o cantor, “o disco era bem caseiro, um mix de composições e covers”. 
 O lançamento do primeiro álbum autora, ainda caseiro, “Introspecto” foi em 2009.
 
+Christiano Senna – Jornalista/Assessor de imprensa - [Contato por email](mailto:christianodsenna@yahoo.com.br)
+
 #### Serviço: Jimmy Andrade
 * Contato: contato@jimmyandrade.com
 * [Canal no YouTube](https://www.youtube.com/user/jimmyandradebr)
